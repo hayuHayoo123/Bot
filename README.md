@@ -1,0 +1,2 @@
+# Bot
+halo aku bot :) 
